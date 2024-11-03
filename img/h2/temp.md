@@ -1,1 +1,0 @@
-tyhjää, tyhjää kaikkialla
